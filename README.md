@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lovgrandma
-- 👀 I run www.tycoon.systems & www.minipost.app
+- 👀 I run www.tv.tycoon.systems & www.minipost.app
 - 🌱 I’m into programmatic advertising & enterprise finance
 - 💞️ I’m looking to collaborate on anything!
 - 📫 Reach me at jessethompson@tycoon.systems
